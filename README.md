@@ -43,8 +43,7 @@ Acesse meu portfólio completo:
 Vamos trocar uma ideia?
 
 - GitHub: [@RevoltadoxDK](https://github.com/RevoltadoxDK)
-- Email: *[coloque aqui seu e-mail se quiser]*
-- LinkedIn: *[adicione se tiver]*
+
 
 ---
 
