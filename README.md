@@ -34,7 +34,7 @@ Gosto de **resolver problemas**, enfrentar desafios e crescer com cada experiên
 ### 🌐 Portfólio
 
 Acesse meu portfólio completo:  
-🔗 [yrvt.shop/yrvt](https://yrvt.shop/yrvt)
+🔗 [yrvt.shop/yrvt]([https://yrvt.com.br))
 
 ---
 
